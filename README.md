@@ -1,2 +1,4 @@
 # Vecna-Domain
-Sometimes everything is not visible in plain sight but we have to check echoes of past
+Nothing to see here !!..... hahaha <br>
+Try cloning and checking echoes of history 😂
+
